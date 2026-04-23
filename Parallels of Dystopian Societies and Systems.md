@@ -1,11 +1,10 @@
 # Parallels of Dystopian Societies and Systems #
 
 ## -seem like an utopia 
-## -control 
-## -totaliralism vs. anarchy 
-## -extreme 
-## -surveillance 
-## -ideological 
+## -a totalitarianism government/organization takes control 
+## 
+## -extreme surveillance 
+## -ideological indoctrination
 ## -elimination  of enemies of the system
 ## -the central idea/ slogan/ mantra etc. is more imortant than the individual's life/privacy/... which 
 
