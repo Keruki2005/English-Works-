@@ -1,11 +1,11 @@
 ### Parallels of Dystopian Societies and Systems ###
-
-
-
 # -seem like an utopia # 
-# -control, surveillance totaliralism vs. anarchy # 
+# -control 
+# -totaliralism vs. anarchy # 
 # -extreme # 
+# -surveillance 
 # -ideological # 
+# - elimination  of enemies of the system
 #  # 
 #  # 
 #   centralized authority caste systems and surveillance,  loss of individual freedom.  In political instability, economic inequality, and environmental crises # 
