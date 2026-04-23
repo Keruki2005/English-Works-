@@ -6,7 +6,8 @@
 ## -extreme 
 ## -surveillance 
 ## -ideological 
-## - elimination  of enemies of the system
+## -elimination  of enemies of the system
+## -the central idea/ slogan/ mantra etc. is more imortant than the individual's life/privacy/... which 
 
  
 ##   centralized authority caste systems and surveillance,  loss of individual freedom.  In political instability, economic inequality, and environmental crises 
