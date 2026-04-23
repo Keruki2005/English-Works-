@@ -4,9 +4,8 @@
 
 ### -seem like an utopia 
 ### -a totalitarianism government/organization takes control 
-### 
 ### -extreme surveillance 
-### -ideological indoctrination and control through propaganda and disinformation
+### -ideological indoctrination and control i.e. through propaganda and disinformation
 ### -elimination of enemies of the system
 ### -the central idea/ slogan/ mantra etc. is more imortant than the individual's life/privacy/... which 
 ### -citizens are pacified by pleasure
