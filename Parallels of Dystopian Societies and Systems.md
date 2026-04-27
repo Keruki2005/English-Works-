@@ -16,11 +16,4 @@
 
 ### Social Stratification: Modern economic disparities echo the rigid class systems of dystopian narratives, where a privileged elite holds disproportionate wealth and power over marginalized groups. 
 ### Themes of Rebellion: Both fictional and real-world societies exhibit themes of rebellion against perceived injustices, highlighting the ongoing struggle for individual rights and democratic values. 
-### 
-### 
- |   |   |   |   |   | 
- |---|---|---|---|---|  
- |   |   |   |   |   |  
- |   |   |   |   |   |  
- |   |   |   |   |   |  
 
